@@ -4,6 +4,17 @@ hi - ima zhazha zzz aaz- 👋 Hi, I’m @shinian101
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
+- cdsv
+- vddsv
+- vsdavdvxdsv
+- dsvvV
+- vdsv
+- sv
+- vdgfdbvcxvzdfbvfdb
+- bfdzbfdbcxbfz
+- dbfz
+- bdfb
+- 
 - ⚡ Fun fact: ...
 
 <!---
